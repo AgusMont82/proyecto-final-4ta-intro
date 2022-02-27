@@ -12,5 +12,6 @@
 -   Angeles con la mujer empoderada sanando; y la violencia sexual.
 -   Cristina: imagenes de violencia patrimonial, física y discriminación.
 - Graben un video de 5-min usando el modelo “Entrega 1 Proyecto Final Patrones Hermosos” y pongan el link de su vídeo en YouTube/Vimeo aquí:
-
+https://youtu.be/9_RPVUsfrYM
 No se olviden de diseñar su obra en un papel y incluir una foto de este dibujo en el vídeo entregable.
+![IMG-20220226-WA0023](https://user-images.githubusercontent.com/100327020/155863729-e4c995bb-333a-4808-b926-6e840e8d1358.jpg)
